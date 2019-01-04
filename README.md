@@ -1,4 +1,4 @@
-# 100 Projects of Learning
+# 100 Projects of eLearning
 
 I recently moved to eLearning, working as an Instructional Designer, and I have a lot to learn.
 
